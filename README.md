@@ -1,0 +1,2 @@
+# Hackintosh-home-app
+Over 20+ Guide on how to install hackintosh Complete guide how to build full hardware for Hackintosh Full guide on teaching how Hackintosh Works Free Premium Guide on how to install clean hackintosh Over 235+ Problems/Erros with Fix Best Comminuties for Hackintosh Best Tools for Hackintosh Most-Popluar Kexts Access to download for 15+ Different Hackintosh ISO Access to more than 500+ Full Free Version Cracked Apps for Hackintosh / macOS Access to get Premium Apps for Free App will soon released , Calculated size must be : 30-90MB
